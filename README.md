@@ -1,0 +1,1 @@
+# SQUALO-QR.com
